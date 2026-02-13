@@ -22,3 +22,14 @@ Simple fungible token minting DApp on Stacks.
 ## Running Locally
 
 1. Go to the frontend folder:
+fjas[djgpoajsdp jga4-ua-0jasdpogpaogaodkgakj gpasjp gjpsd jgpoSDJ POGJ spojg; SDJ;G jsd;G'D gsd SD Gsd]po P'
+g
+SD Gsd
+ gSD
+G
+sd gSD
+Gsdg
+ SDG
+g SD
+ Gsd g
+S
