@@ -9,3 +9,4 @@
 2026-02-14 21:48:15 - updated token logic
 2026-02-14 21:48:23 - added comment
 2026-02-15 00:16:39 - updated token logic
+2026-02-15 00:17:01 - adjusted supply
